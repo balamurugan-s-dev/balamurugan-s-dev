@@ -1,6 +1,6 @@
 Hi, I'm Balamurugan S! 👋
 
-📍 Sathirapatti, Trichy, 621 009📞 +91 9626170068📧 balabala13570@gmail.com🔗 LinkedIn Profile
+📍 Sathirapatti, Trichy, 621 009📧 balabala13570@gmail.com🔗 LinkedIn Profile
 
 🎯 Professional Summary
 
